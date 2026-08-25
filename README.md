@@ -1,3 +1,9 @@
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/2781141c-e54f-4481-8bb7-aaa40261eaa0" width="600">
+</p>
+ㅤㅤ
+ㅤㅤ
+ㅤㅤ
 <div align="center">
   i overthink easily, so be careful while interacting with me
 </div>
@@ -21,3 +27,9 @@
   <div align="center">
   i often speak without thinking if i trust you. im sorry if i have no filter at times i try my best but sometimes it slips
 </div>
+ㅤㅤ
+ㅤㅤ
+ㅤㅤ
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/0c050226-f558-421c-8921-391d439abf35" width="600">
+</p
