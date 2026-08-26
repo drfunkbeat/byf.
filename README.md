@@ -13,7 +13,7 @@
 </div>
 ㅤㅤ
 <div align="center">
-  i am a fictkin of a few, as mentioned on my profile description. i am also a fullfic of travis rapid from tmirb (i dont mind doubles as long as youre not an asshole about it to me).
+  i am a fictkin of a few, as mentioned on my profile description. i am also a fullfic of travis rapid from tmirb and godcoil from pwned by 14:00 (i dont mind doubles as long as youre not an asshole about it to me).
 </div>
 ㅤㅤ
 <div align="center">
