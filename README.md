@@ -9,7 +9,7 @@
 </div>
 ㅤㅤ
 <div align="center">
-  i always reply to whispers! if i didnt reply to you i did not do it on purpose i promise. chances are that im offtab, or you left the game before i could reply to you and i couldnt find you again in order to reply. in that ase, im very sorry ;;
+  i always reply to whispers! if i didnt reply to you i did not do it on purpose i promise. chances are that im offtab, or you left the game before i could reply to you and i couldnt find you again in order to reply. in that case, im very sorry ;;
 </div>
 ㅤㅤ
 <div align="center">
