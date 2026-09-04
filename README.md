@@ -9,6 +9,10 @@
 </div>
 ㅤㅤ
 <div align="center">
+  i always reply to whispers! if i didnt reply to you i did not do it on purpose i promise. chances are that im offtab, or you left the game before i could reply to you and i couldnt find you again in order to reply. in that ase, im very sorry ;;
+</div>
+ㅤㅤ
+<div align="center">
   i am socially awkward and suck at starting conversations, i SWEAR i dont hate you or anything im just really bad at starting conversations ++ i havea  fear of rejection and as i mentioned above i overthink a lot. ^__^ i am however trying my best to work on this as much as im able to
 </div>
 ㅤㅤ
